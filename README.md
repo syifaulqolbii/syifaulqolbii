@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I am currently studying at the Muhammadiyah University of Surakarta
+🔭 Fresh graduate from Muhammadiyah University of Surakarta with experience on web development.
 
 
 ## 🌐 Socials:
